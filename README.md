@@ -27,4 +27,9 @@ From Anthony Dias Blue, WCBS food editor: "I learned this recipe when I was a ju
 
 # Directions
 
-Combine all ingredients in a saucepan. Bring the mixture to a boil; then reduce the heat and simmer for 15 minutes. Remove the cinnamon stick. Cool, then refrigerate. This will keep in the refrigerator for 2-3 weeks or it can be frozen in plastic containers. The recipe makes 6 cups of relish which is good with turkey, ham, chicken or pork.
+1. Combine all ingredients in a saucepan. 
+2. Bring the mixture to a boil; then reduce the heat and simmer for 15 minutes. 
+3. Remove the cinnamon stick. 
+4. Cool, then refrigerate. 
+
+This will keep in the refrigerator for 2-3 weeks or it can be frozen in plastic containers. The recipe makes 6 cups of relish which is good with turkey, ham, chicken, pork, or just a spoon.
